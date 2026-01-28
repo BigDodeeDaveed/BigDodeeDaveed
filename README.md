@@ -7,7 +7,7 @@
 
 - 📫 How to reach me: **davidrabba2007@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/david-rabba-50a6a8391/](https://www.linkedin.com/in/david-rabba-50a6a8391/)
+- 📄 Know about my experiences: WEBSITE BEING WORKED ON.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
